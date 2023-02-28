@@ -6,3 +6,5 @@
 - 1/2 pimentón tamaño mediano
 - 1/2 cebolla tamaño mediano
 - 50 gramos de jamón cocido salchicha ó peperoni
+- Una pizca de orégano
+- Una pizca de sal
